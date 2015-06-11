@@ -1,1 +1,1 @@
-Hey! Buddy!
+Hey, buddy!
