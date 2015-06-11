@@ -1,2 +1,2 @@
-See ya later.
-See ya around.
+See you later.
+See you around.
